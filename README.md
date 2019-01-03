@@ -1,2 +1,2 @@
 # Kamil
-#AGO <3
+AGO
